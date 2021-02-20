@@ -17,3 +17,5 @@
 以上方式均可获得本站最新地址，请根据个人自行选择！
 
 再次感谢您的来访！本信息来自【51唐人影视】www.511tr.com
+
+<font color=#0099ff size=7 face="黑体">color=#0099ff size=72 face="黑体"</font>
