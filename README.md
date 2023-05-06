@@ -1,8 +1,8 @@
 # 511tr唐人影视最新地址发布页
-#### 最新地址一：https://www.581tr.cyou
-#### 最新地址二：https://www.571tr.cyou
-#### 最新地址三：https://www.561tr.cyou
-#### 最新地址四：https://www.551tr.cyou
+#### 最新地址一：https://www.521tr.cc
+#### 最新地址二：https://www.531tr.buzz
+#### 最新地址三：https://www.581tr.cyou
+#### 最新地址四：https://www.571tr.cyou
 #### 最新地址五：https://www.541tr.cyou
 #### 最新地址六：https://www.531tr.cyou
 #### 最新地址七：https://www.541tr.com
